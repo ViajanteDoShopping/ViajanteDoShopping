@@ -14,4 +14,4 @@ You can click the Preview link to take a look at your changes.
 --->
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSjMx7f1Lprw_FJAAgBzRymycjxJpEcehZcNA&s)
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTnVgMMS5kjxtv0WavSg7IN3VMek6xOeu7-4Q&s)
-the image of the girl with some whirl eyes is the owner of virtual insanity🔥(music atleast as far as i know...)
+the image of the girl with some whirl eyes is the owner of virtual insanity🔥(owner of the music atleast as far as i know...)
