@@ -5,7 +5,7 @@
 - 📫 How to reach me nuh uh
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im very silly and goofy
-- **creatures, in this underground,is made of V I R T U A L  I N S A N I T Y** lyrics from https://www.youtube.com/watch?v=xg0KUsulqk8
+- **creatures, in this underground,is made of V I R T U A L    I N S A N I T Y** lyrics from https://www.youtube.com/watch?v=xg0KUsulqk8
 
 <!---
 ViajanteDoShopping/ViajanteDoShopping is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
