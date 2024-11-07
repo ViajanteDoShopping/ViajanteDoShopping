@@ -2,7 +2,7 @@
 - 👀 I’m interested in minecraft for now
 - 🌱 I’m currently learning on my school
 - 💞️ I’m looking to collaborate on nobody for now
-- 📫 How to reach me breno.adami@escola.pr.gov.br
+- 📫 How to reach me breno.adami@escola.pr.gov.br -i probably wont even see your message on here lol but incase you do just mentionate my name so i might look i guess-
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im very silly and goofy
 - **futures' made of, V I R T U A L    I N S A N I T Y** lyrics from https://www.youtube.com/watch?v=xg0KUsulqk8
