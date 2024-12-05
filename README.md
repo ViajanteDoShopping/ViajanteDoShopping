@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ViajanteDoShopping
-- 👀 I’m interested in minecraft for now
+- 👀 I’m interested in mining game like rex reincarnated and brawl stars for now
 - 🌱 I’m currently learning on my school
 - 💞️ I’m looking to collaborate on nobody for now
 - 📫 How to reach me breno.adami@escola.pr.gov.br -i probably wont even see your message on here lol but incase you do just mentionate my name so i might look i guess-
